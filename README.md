@@ -1,1 +1,1 @@
-# curriculo_2
+https://rocketz13.github.io/curriculo_2/
